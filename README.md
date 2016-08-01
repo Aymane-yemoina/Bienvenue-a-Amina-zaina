@@ -1,2 +1,1 @@
-# Bienvenue-a-Amina-zaina
-c est une entreprise basee sur le develppement des site web
+I'm a crazy developer , i like edit code and help my fellow to simplify their work .
